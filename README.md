@@ -6,3 +6,5 @@ This aligns with broader trends toward decentralization in technology, governanc
 
 At the same time, regulation is becoming an increasingly important factor. Governments are working to define legal frameworks for crypto, balancing innovation with consumer protection. The outcome of these regulations will shape the future of the industry.
 
+
+Ultimately, crypto is not just about money. 
